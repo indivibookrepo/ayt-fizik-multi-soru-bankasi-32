@@ -1,0 +1,1 @@
+# ayt-fizik-multi-soru-bankasi-32
